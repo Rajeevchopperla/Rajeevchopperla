@@ -16,7 +16,8 @@
 
 - 📫 How to reach me **rajeevkumar.chopperla@gmail.com**
 
-- ⚡ Fun fact **i am funny**
+- ⚡ Fun fact **
+Electricity dances silently.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
